@@ -1,0 +1,1 @@
+# qa_oct_2023_Danylo_Melentiev
